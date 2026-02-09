@@ -1,0 +1,58 @@
+# ONE OR EIGHT – POWER
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+One or Eight
+Levitate
+Feelin' that power
+We make an entrance just me and my boys
+Talk to me nice over all of this noise
+You wanna turn up I can't turn you down
+I'll take you higher
+Heart pumpin' don't slow me down
+Spotlight is on us right now
+Keep going another round
+Around and round
+And just when you think you're safe
+Everybody. SHH.
+I can, I can,
+I can feel the power, power, power
+I can feel the power, power turn up
+I can feel the power, power, power
+I can feel the power it's turning me up
+I can feel the power
+Aye It's a hearse
+I'm making deals with all of my demons
+Rise from the ashes no longer defeated
+Leave all my enemies broken in pieces
+Show me up (what's that sound), Imma go off ya
+I'm gonna put it on replay
+Step on the scene they (bow)
+Twin jump in, I'm gassing them up like a freeway
+Heart pumpin' don't slow me down
+Spotlight is on us right now
+Keep going another round
+Around and round
+And just when you think you're safe
+Everybody. SHH.
+I can, I can,
+I can feel the power, power, power
+I can feel the power, power turn up (turn it up)
+I can feel the power, power, power (crank it up)
+I can feel the power it's turning me up
+I can feel the power
+I can feel the
+I can feel the
+I can feel the power it's turning me up
+I can feel the power
+I know I'm better now but I paid the price
+Been a lonely road but it's still all mine
+Everything to prove burning in my eyes
+(burning in my eyes burnin' in my)
+I can feel the power, power, power
+I can feel the power, power turn up
+I can feel the power, power, power
+I can feel the power it's turning me up
+I can feel the power
+```
